@@ -1,0 +1,1 @@
+# solution-compl-te-de-BI-en-environnement-on-premise
